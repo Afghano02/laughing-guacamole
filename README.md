@@ -1,2 +1,0 @@
-# laughing-guacamole
-Afghano 
